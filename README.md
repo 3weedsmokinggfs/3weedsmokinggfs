@@ -1,5 +1,7 @@
 
-![diediedie](https://github.com/user-attachments/assets/6df391bb-75af-418f-b8b5-3fdef0d05556)
-![little bitch](https://github.com/user-attachments/assets/1607ee26-048d-4156-9dea-e8ba803bcee8) 
-![da_stamp_base_by_ccb_18_dbju1qh-fullview](https://github.com/user-attachments/assets/4ce64180-34f1-40f8-8ae8-dd636134d3e9)
-![iamextremlyautistic](https://github.com/user-attachments/assets/5f80fa0a-06d4-4f19-a4e8-2aad80f4df7f)
+![ezgif-![fredmeds](https://github.com/user-attachments/assets/b170545d-4354-4f70-b0fb-e24be557e53d)
+2-344eeaf565](https://github.com/user-attachments/assets/0bdb9c5e-f105-48ba-b620-04a4bd5f9f41)
+![iamextremlyautistic![ezgif-2-5c67b3103b](https://github.com/user-attachments/assets/f2d4b8b8-b2cd-4e3b-acc5-6b9615e564fb)
+](https://github.com/user-attachments/assets/5f80fa0a-06d4-4f19-a4e8-2aad80f4df7f)
+![rowlet](https://github.com/user-attachments/assets/21a714c0-42d2-4e9e-a4ad-28717d457a61)
+![sonicyouth](https://github.com/user-attachments/assets/072fcdd6-d6f5-4605-9af2-b7c36e9202fa)
