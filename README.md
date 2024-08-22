@@ -5,6 +5,5 @@
 ![rowlet](https://github.com/user-attachments/assets/dfc0b78c-c175-4eb1-8847-ff8df943736d)
 ![sonicyouth](https://github.com/user-attachments/assets/a16c0e28-bc88-4c45-b558-1bc4dcc67b6c)
 ![3cheersstamp](https://github.com/user-attachments/assets/624daef1-6aa7-4f43-8cb8-3aa4a46fb83e)
-![superspecialawesome](https://github.com/user-attachments/assets/fe189ff7-b4ad-4051-88b0-e0f94aa35850)
 ![tumblr_57e5b26e5f2152dccb5b8132c42372ac_9377fa1e_100](https://github.com/user-attachments/assets/04eb5172-c8c6-4a39-8073-63819b4e3517)
 
