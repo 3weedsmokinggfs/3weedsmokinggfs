@@ -1,4 +1,4 @@
-�
+
 ![3cheersstamp](https://github.com/user-attachments/assets/0e84ef95-92d7-4a76-b1d0-c079e60b5f6b)
 ![sonicyouth](https://github.com/user-attachments/assets/d810af1e-d004-4231-8a32-699db4661bf5)
 ![iamextremlyautistic](https://github.com/user-attachments/assets/e100af29-c6d0-4997-8118-ea3cef8cc5c8)
