@@ -1,6 +1,6 @@
 �
 ![3cheersstamp](https://github.com/user-attachments/assets/0e84ef95-92d7-4a76-b1d0-c079e60b5f6b)
-![diediedie](https://github.com/user-attachments/assets/8e7a9a05-bad7-4a23-afd3-afd313e8a0c0)
+![sonicyouth](https://github.com/user-attachments/assets/d810af1e-d004-4231-8a32-699db4661bf5)
 ![iamextremlyautistic](https://github.com/user-attachments/assets/e100af29-c6d0-4997-8118-ea3cef8cc5c8)
 ![IMG_1987](https://github.com/user-attachments/assets/95c035df-04c4-454f-b874-a0828e56f6ee)
 ![rowlet](https://github.com/user-attachments/assets/bb3d6c36-8eef-42dc-8c82-8cb35dc4129b)
@@ -8,3 +8,10 @@
 ![superspecialawesome](https://github.com/user-attachments/assets/bff1aecc-f618-4dc3-9adb-2418d42053a5)
 ![tumblr_39cf4cf2e27118dab02c36512857a4c4_55bbfe19_100](https://github.com/user-attachments/assets/b69b45b3-4ce5-4ebb-bdf6-078adbe9bd8a)
 ![tumblr_ad64be78df54ba39eac4de8472102f10_15539f36_100](https://github.com/user-attachments/assets/2436348b-15f8-4a6a-8028-01e1ccee24f9)
+![nyannekorabies](https://github.com/user-attachments/assets/423b28a7-116a-462b-8b44-74df53edd340)
+![pluto](https://github.com/user-attachments/assets/03cc9a18-82b5-415b-9838-2400edc54e9b)
+![tumblr_57e5b26e5f2152dccb5b8132c42372ac_9377fa1e_100](https://github.com/user-attachments/assets/f53b1256-3901-4b54-bbfe-e7029b7ab141)
+![tumblr_1724d9f5c3cdfab48c995188a415e1d3_c1bb27a1_100](https://github.com/user-attachments/assets/1ec39a38-47fa-45e0-9363-4594ea101b54)
+![tumblr_b22f4bbaccf0183b6816fbd46369f6cc_633bd250_100](https://github.com/user-attachments/assets/49cb6de0-c895-4145-906b-18e53ff0bafa)
+![ezgif-2-ec5874bdd0](https://github.com/user-attachments/assets/a189531a-9915-44d9-90b3-fa9ef8d25e07)
+![ezgif-2-5c67b3103b](https://github.com/user-attachments/assets/36959d61-af3a-4791-9a35-bd795d29fbdb)
