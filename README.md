@@ -4,7 +4,11 @@
 ![ezgif-2-5c67b3103b](https://github.com/user-attachments/assets/94c9c53e-c44d-4d73-b4ac-393e317681a2)
 ![rowlet](https://github.com/user-attachments/assets/dfc0b78c-c175-4eb1-8847-ff8df943736d)
 ![sonicyouth](https://github.com/user-attachments/assets/a16c0e28-bc88-4c45-b558-1bc4dcc67b6c)
-![3cheersstamp](https://github.com/user-attachments/assets/624daef1-6aa7-4f43-8cb8-3aa4a46fb83e)
-![tumblr_57e5b26e5f2152dccb5b8132c42372ac_9377fa1e_100](https://github.com/user-attachments/assets/04eb5172-c8c6-4a39-8073-63819b4e3517)
+![3cheersstamp](https://g![tumblr_39cf4cf2e27118dab02c36512857a4c4_55bbfe19_100](https://github.com/user-attachments/assets/9f57e909-320a-4846-9e1c-dd2e653bc98d)
+ithub.com/user-attachments/assets/624daef1-6aa7-4f43-8cb8-3aa![theflesh](https://github.com/user-attachments/assets/af2d8ec0-a019-4486-baac-da43bb85265e)
+4a46fb83e)
+![tumblr_57e5![little_miss_sunshine_stamp_by_coleymonkey_d1jr0kw-fullview](https://github.![nono](https://github.com/user-attachments/assets/cb00391c-cb0c-43d6-b917-4ad425f7a13b)
+com/user-attachments/assets/81a20764-72cf-4c47-b379-9edd7ceff734)
+b26e5f2152dccb5b8132c42372ac_9377fa1e_100](https://github.com/user-attachments/assets/04eb5172-c8c6-4a39-8073-63819b4e3517)
 
 i lie rentry no coming soob i burt out💔
